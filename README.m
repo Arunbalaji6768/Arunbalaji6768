@@ -1,6 +1,6 @@
 -  I’m @Arunbalaji6768
 - 👀 I’m interested in web developing 
-- 🌱 I’m currently learning 1st year of college 
+- 🌱 I’m currently learning 2nd year of college 
 - 💞️ I’m looking to collaborate on software companies
 - 📫 How to reach me through my email id prarunbalaji853@gmail.com
 
